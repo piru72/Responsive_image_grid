@@ -1,1 +1,1 @@
-# Responsive_image_grid
+# Privacy Policy Page for AUST BUDDY 
